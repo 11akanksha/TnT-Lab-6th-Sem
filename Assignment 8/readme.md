@@ -1,3 +1,3 @@
 Questions:
 
-![Screenshot (2994)](https://user-images.githubusercontent.com/64818557/159718870-2b4c5f16-2a44-4ca1-b6bc-c5d1cc5c78d8.png)
+![Screenshot (2994)](https://user-images.githubusercontent.com/64818557/159719084-9f508ba1-06fa-491f-a1f7-4643a6830afc.png)
